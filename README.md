@@ -3,7 +3,7 @@
 
 ## Currently working on
 
- - ~Nothing~ Already done. 🧐
+ - ~Being interesting~ Already done. 🧐
 ![image](https://user-images.githubusercontent.com/932785/111412973-c2c6ab80-86b3-11eb-8649-59da29d00363.png)
 
 ## Ready to Deploy
