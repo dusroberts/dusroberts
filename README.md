@@ -1,3 +1,8 @@
+*A soul in tension that's learning to fly
+Condition grounded but determined to try
+Can't keep my eyes from the circling skies
+Tongue-tied and twisted, just an earth-bound misfit, I...*
+
 ![DFnNt25XgAQM4w-](https://user-images.githubusercontent.com/932785/111706428-ac863000-8818-11eb-8dd1-e658edc12b4d.jpg)
 
 
